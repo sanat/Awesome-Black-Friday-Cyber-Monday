@@ -254,7 +254,7 @@ Total deals: 194
 |  💰 | [Spotify Cover Maker ](https://sharegiftlist.com?ref=awesomebf) | Create Custom Spotify Playlist Covers and Song Lyrics Posters | 30% off (automatic) |
 |  💼 | [hiretool.io](https:/hiretool.io?ref=awesomebf) | Cut out unqualified candidates before the interview— save your time and focus on the right talent | 50% off on monthly and yearly subscriptions (automatic) |
 | 📚 | [Ebookany](https://ebookany.com) | Easily convert any online content (blogs, links, RSS feeds, Google Docs, Notion pages) into a convenient ebook format (EPUB or PDF). | 30% OFF on all plans with code **BFCM2024** |
-
+|  💼 | [hirevire](https:/hirevire.com?src=tonybflist) | Never Schedule Another First-Round Interview. Screen 100+ Candidates in Hours, Not Weeks - Voted "Best Value and Ease of Use ATS" 2024 | Get 40% off on our annual plans with **40offBF24** |
 
 [⬆️ Go to Top](#table-of-contents)
 
