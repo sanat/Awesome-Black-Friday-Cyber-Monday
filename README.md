@@ -384,6 +384,7 @@ Total deals: 450
 |  📁 | [Files to Notion](https://www.files2notion.com/) | Open and organise your local files in Notion | 20% OFF on Extended plan with code **BLACK2024FRIDAY** |
 |  📝 | [Writing Habit Builder](https://writemore.io/) | Build Your Writing Muscle with Tools and Analytics Across All Devices | 30% OFF with code **BLACKFRIDAY2024** on annual plan for the first year. |
 | 💰 | [SpamSieve](https://c-command.com/spamsieve/) | Save time by adding powerful spam filtering to the e-mail client on your Mac. | **BLACKFRIDAY2024** 25% off |
+|  💼 | [Hirevire](https:/hirevire.com?src=tonybflist) | Never Schedule Another First-Round Interview by Automating Your Candidate Screening | 40% off on our annual plans with **40offBF24** |
 
 [⬆️ Go to Top](#table-of-contents)
 
